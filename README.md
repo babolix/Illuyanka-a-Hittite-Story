@@ -22,6 +22,7 @@ Game instructions
 - You may click on the screen to skip the animations.
 - All text with this style are links. Whenever you need to, learn more about the characters in the Gods and Mortals page or understand the Hittite mindset in the Hittite Traditions page by clicking the links in the story text or through the sidebar.
 - All text is based on the original Hittite tablets and versions of the myth, every choice is guided by the ancient way of thinking.
+
 Suggestions and donations are appreciated.
 
 Play for free at https://babolix.itch.io/illuyanka-a-hittite-story
