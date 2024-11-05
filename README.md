@@ -1,4 +1,5 @@
 The story
+
 From the ancient clay tablets, unearthed in Anatolia by the hands of archaeologists, have revealed the tales of the Gods of this mighty people who dwelt more than three millennia ago, between 1650 and 1180 before the common era.
 
 The Hittites cherished the telling of tales during rituals and holy feasts, to unveil the origins of their customs.
